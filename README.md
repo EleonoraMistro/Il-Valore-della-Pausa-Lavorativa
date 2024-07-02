@@ -18,6 +18,12 @@ https://bit.ly/3XHOfTx
 📈Un periodo non lineare nella tua carriera raccontato da @Davide Benaroio 📈
 https://bit.ly/4eHVmkD
 
+🏳️‍🌈 La diversità è un valore
+https://bit.ly/3L6crqS
+
+🗣️ La storia di @Vincenzo Rizza
+https://bit.ly/4bofeXb
+
 Webinar FREE su Linkedin 10.07.2024 ore 18-19. Registrati https://bit.ly/4eKCotK 
 
 Ti aspettiamo👋🏼
