@@ -26,5 +26,7 @@ https://bit.ly/4bofeXb
 
 Webinar FREE su Linkedin 10.07.2024 ore 18-19. Registrati https://bit.ly/4eKCotK 
 
-Se non sei riuscito/a a partecipare ho la registrazione per te! Contattami😉
+Non preoccuparti se non sei riuscito/a a partecipare... perchè ho la registrazione per te! 
+
+Contattami😉
 
